@@ -1,5 +1,5 @@
 /*
-wa.me/6282285357346
+https://wa.me/201558880163
 github: https://github.com/sadxzyq
 Instagram: https://instagram.com/tulisan.ku.id
 ini wm gw cok jan di hapus
